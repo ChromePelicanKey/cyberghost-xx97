@@ -1,4 +1,4 @@
-
+Enhance your CyberGhost experience with new CyberGhost Connector | custom-configurations + 24/7-support, the #1 connector. Includes custom-configurations and 24/7-support for a
 
 
 
